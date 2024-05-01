@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-My name is Kiran Jorwekar, Iam having almost 21 years of IT experience. I am currently working in a MNC company as a SCS.
+My name is Kiran Jorwekar, Iam having almost 21 years of IT experience. I am currently working in a MNC company as a SCS having IT Project Management role and responsibilities along with Scrum Master Role.
 
 I love learning new technology and latest trends in IT that helps me to do something new in my project area which benefits my workplace and I learn that too with it! :-)
 
